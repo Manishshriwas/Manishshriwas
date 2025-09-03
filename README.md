@@ -58,8 +58,8 @@ I enjoy creating solutions that make life easier 🚀.
 ---
 
 ## 📫 How to Reach Me  
-- 📧 Email: **shriwasmanish17.com**  
-- 💼 LinkedIn: [linkedin.com/in/manish-shriwas]([https://www.linkedin.com/in/manish-shriwas](https://www.linkedin.com/in/manishshriwas/))  
+- 📧 Email: **[](shriwasmanish17@gmail.com/)**  
+- 💼 LinkedIn: [linkedin.com/in/manishshriwas](https://www.linkedin.com/in/manishshriwas/)
 - 🐙 GitHub: [github.com/Manishshriwas](https://github.com/Manishshriwas)  
 
 ---
